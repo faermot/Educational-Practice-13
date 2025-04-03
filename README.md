@@ -5,6 +5,6 @@ _(памагите)_
 
 > Карасев Илья
 
-![image](https://github.com/user-attachments/assets/3ac1d4d5-3cb4-4db0-9fa3-fc7feb1ab297)
+![image](https://github.com/user-attachments/assets/33ddc00e-d665-47e7-b3c6-c72605e25a5a)
 
-![image](https://github.com/user-attachments/assets/4b15fbfb-115c-4a39-81be-a55052281a95)
+![image](https://github.com/user-attachments/assets/6d5741e8-2704-4e3c-aff0-7f1d30c6b8fb)
